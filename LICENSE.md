@@ -1,4 +1,4 @@
-# 
+# Inteligente Glary Utilities plugins para Mac OS | Elite Glary Utilities plugins para PC Windows. Com gerenciamento de cookies e auditorias de seguranca — otimizado para máximo desempenho em cada plataforma.
 
 
 
